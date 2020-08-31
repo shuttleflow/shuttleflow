@@ -88,7 +88,7 @@ Shuttleflow2由业内最具有影响力的团队合力筹划而立项，包括�
 工作地点： 远程或上述发起成员办公室(北京、上海和杭州皆有位置)
 
 
-海外品牌运营、Twitter、Discord和Telegram运营： 代世超
+海外品牌运营、Twitter、Discord和Telegram运营： 代世超兼任
 
 社区成员：
 
